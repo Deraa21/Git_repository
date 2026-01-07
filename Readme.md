@@ -1,0 +1,6 @@
+THIS IS A README FILE ON MY GIT REPOSITORY FOLDER, AND IT'S READY TO BE COMMITTED ON GITHUB, 
+
+
+
+hndmdmcccbchfjfidkmx bcbcbjdjdjdjdndn:
+
